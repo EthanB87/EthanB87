@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **ethan@brockmanfamily.ca**
 
-- 📄 Know about my experiences [https://acrobat.adobe.com/link/review?uri=urn:aaid:scds:US:69fb07ec-7ed5-3658-ac47-4619f8ba0bf9](https://acrobat.adobe.com/link/review?uri=urn:aaid:scds:US:69fb07ec-7ed5-3658-ac47-4619f8ba0bf9)
+- 📄 Know about my experiences [https://acrobat.adobe.com/link/review?uri=urn:aaid:scds:US:69fb07ec-7ed5-3658-ac47-4619f8ba0bf9](https://acrobat.adobe.com/link/review?uri=urn:aaid:scds:US:c610293f-2b47-3548-b794-0330387ae58b)
 
 - ⚡ Fun fact **I know almost as much about Football as I do Tech**
 
